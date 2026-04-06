@@ -147,7 +147,7 @@ By the end of this internship, I gained:
 
 ## 📌 Author
 
-**Raj gambhava**  
+**Tarang Chaniyara**  
 GTU 8th Semester Student  
 Microsoft Elevate Intern (2026)
 
